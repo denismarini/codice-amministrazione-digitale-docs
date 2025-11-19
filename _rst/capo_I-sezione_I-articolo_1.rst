@@ -6,7 +6,7 @@ Art. 1  Definizioni
 
   0a\) AgID: l'Agenzia per l'Italia digitale di cui all'articolo  19 del  decreto-legge  22  giugno   2012,   n.   83,   convertito,   con modificazioni, dalla legge 7 agosto 2012, n. 134; 
 
-  a\) LETTERA SOPPRESSA DAL D.LGS. 26 AGOSTO 2016, N. 179; 
+  a\) LETTERA SOPPRESSATA DAL D.LGS. 26 AGOSTO 2016, N. 179; 
 
   b\) LETTERA SOPPRESSA DAL D.LGS. 26 AGOSTO 2016, N. 179; 
 
