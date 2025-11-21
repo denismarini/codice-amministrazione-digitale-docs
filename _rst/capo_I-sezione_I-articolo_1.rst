@@ -9,6 +9,7 @@ Art. 1  Definizioni
   a\) LETTERA SOPPRESSA DAL D.LGS. 26 AGOSTO 2016, N. 179; 
 
   b\) LETTERA SOPPRESSA DAL D.LGS. 26 AGOSTO 2016, N. 179; 
+Sono ciccio pelliccio
 
   c\) carta d'identità elettronica: il documento d'identità munito di elementi per l'identificazione fisica del titolare  rilasciato  su supporto informatico dalle amministrazioni comunali con la prevalente finalità di dimostrare l'identità anagrafica del suo titolare; 
 
